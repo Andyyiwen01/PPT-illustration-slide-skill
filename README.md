@@ -1,1 +1,0 @@
-# PPT-illustration-slide-skill
